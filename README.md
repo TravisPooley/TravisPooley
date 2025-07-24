@@ -3,7 +3,7 @@
 I like to break things. Currently a Technical Consultant at [EMT Distribution](https://www.emtdist.com/). 
 
 Find me at:
-[🌐 travispooley.com](https://travispooley.com?utm_source=github&utm_medium=profile&utm_campaign=readme_links) | [@travispooley on Twitter](https://twitter.com/travispooley) & [@travispooley on LinkedIn](https://linkedin.com/travispooley)
+🌐 [travispooley.com](https://travispooley.com?utm_source=github&utm_medium=profile&utm_campaign=readme_links) | [@travispooley on Twitter](https://twitter.com/travispooley) & [@travispooley on LinkedIn](https://linkedin.com/travispooley)
 
 <hr />
 
